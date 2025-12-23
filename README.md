@@ -1,1 +1,0 @@
-# ForAll-SniperBot
